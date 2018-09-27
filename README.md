@@ -1,0 +1,2 @@
+# Dollarcoin
+Dollarcoin is a virtual and intangible currency. In a way, Dollarcoin resembles the cash money we all know, only you can not touch it in any of its forms as it happens with coins or bills. In addition to presenting many of the characteristics of this well-known physical medium, when using Dollarcoin we also have many of the advantages that the digital medium offers us: it is immediate, it can be sent anywhere in the world, and it has a greater anti-theft security, among other.
